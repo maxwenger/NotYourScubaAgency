@@ -14,6 +14,8 @@ As a part of my adventure in DIYing a full sidemount harness setup, one of the m
 
 ### Attempt 1
 
+TODO: Dimensions of template/pattern
+
 ### Attempt 2
 
 ### Attempt 3
