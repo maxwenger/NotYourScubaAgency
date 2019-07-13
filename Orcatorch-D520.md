@@ -25,3 +25,9 @@ The beam angle is very appropriate for a backup light. As a backup light, I want
 ## Conclusion
 
 I would highly recommend this light as a backup light or a recreational primary. It's very simple to use, as there is only one mode (no more accidentally putting your light into strobe mode). It's compact so it can be worn comfortably on your harness compared to other lights. It's also very durable, so I'm not worried about throwing it around on a boat, at a beach, or in the bucket full of the rest of my dive gear. This is the simplest and most convenient light I have ever used because of the rotary lock and the common battery, and I would have no hesitation recommending this light to anybody, regardless of their diving aspirations.
+
+---
+
+Disclaimer: This article is not a substitute for any formal SCUBA training, and is provided for entertainment purposed only. Please seek a local dive professional for complete and proper training.
+
+*This work is licensed under a [Creative Commons Attribution-ShareAlike 4.0 International License](https://creativecommons.org/licenses/by-sa/4.0/). [![CC-BY-SA 4.0](https://licensebuttons.net/l/by-sa/4.0/80x15.png)](https://creativecommons.org/licenses/by-sa/4.0/)*
